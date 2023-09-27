@@ -1,1 +1,1 @@
-latihan pertama saya
+latihan pertama saya awokaowk
