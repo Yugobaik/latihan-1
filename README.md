@@ -1,1 +1,1 @@
-latihan pertama saya wkwkwk
+anuan ituan 
